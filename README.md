@@ -1,3 +1,3 @@
 # Naman Verma 🦌
 ## 📧 Email: namanverma648@gmail.com
-## 🌐 LinkedIn: 
+## 🌐 LinkedIn: https://www.linkedin.com/in/namanverma648
